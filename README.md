@@ -1,8 +1,8 @@
 # BL-Recommendation
 I sorted these based on an overall vibe and intensity most fans (like me) usually agree on:
-	•	Spicy = more mature themes, heavy tension, darker plots, or strong chemistry
-	•	Mild = balanced romance/drama, some tension but not extreme
-	•	Cute = fluffy, wholesome, school/soft romance vibes
+	- Spicy = more mature themes, heavy tension, darker plots, or strong chemistry
+	- Mild = balanced romance/drama, some tension but not extreme
+	- Cute = fluffy, wholesome, school/soft romance vibes
 	
 	🌶️ Spicy
 	These usually have stronger chemistry, darker themes, or more mature storylines.
