@@ -7,7 +7,7 @@ I sorted these based on an overall vibe and intensity most fans (like me) usuall
 🌶️ Spicy
 
 These usually have stronger chemistry, darker themes, or more mature storylines.
-	⁃	KinnPorsche
+	⁃	⁃	KinnPorsche
 	⁃	Only Friends (Season 1 & 2)
 	⁃	Love Mechanics
 	⁃	Pit Babe (Season 1 & 2)
@@ -28,7 +28,7 @@ These usually have stronger chemistry, darker themes, or more mature storylines.
 	⁃	Twittering Birds Never Fly (Anime)
 	⁃	The Eighth Sense
 	⁃	Secret Relationship
-
+	
 🌤️ Mild
 
 Romantic with drama or tension, but not overly intense.
@@ -42,7 +42,7 @@ Romantic with drama or tension, but not overly intense.
 	⁃	Where Your Eyes Linger 
 	⁃	Sammy’s Children’s day 
 	⁃	To My Star
-	⁃	Vice Versa
+	⁃	(Vice Versa)
 	⁃	A Boss and a Babe
 	⁃	Wandee Goodday
 	⁃	Love in Translation
