@@ -86,4 +86,4 @@ For something that’s “uncensored”, I would recommend a Korean Anime by the
 Overall, if you want a specific order what I think YOU could prefer, you can follow my insta (i_n_amabeer) or snap (in_amabeer) and you can explain me your spice tolerance and what genre you like personally for a more in-depth list. Ofc, there are many more shows out there, this is just the beginning….
 
 lil sneak peaks :,)
-[<img width="1917" height="964" alt="Screenshot 2025-11-09 222003" src="https://github.com/user-attachments/assets/575e6341-c736-452f-a574-65a46544c104" />](https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3YjlxNHZ6Y3YwZmdsa2kxY3Q4YXdsc2kwdHo5YW9mYzlyb2o2cjB2dSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/07e7J1ZEUqBkyvfPeD/giphy.gif)
+<img src="https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3djF4eTg3aDdobWduaHRmOHFvZ2tkdXVha2FubTBucGMyY2I3Zm95aCZlcD12MV9naWZzX3NlYXJjaCZjdD1n/FnbDocrxHxjwSX0dLw/giphy.gif">
