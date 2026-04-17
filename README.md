@@ -87,14 +87,14 @@ I sorted these based on an overall vibe and intensity most fans (like me) usuall
 	⁃	I Told Sunset About You → Mild–Heavy emotional
 	⁃	Twittering Birds Never Fly → Very Spicy (dark themes) 
 	
-🤪 For Beginners (an Introduction) `#c6f5d3`
+🤪 For Beginners (an Introduction) 
 
-I always like to recommend easy going BLs that aren’t too intense. For example, 2gether, a classic and most famous between the fans with 2 Thai famous actors (incredibly rich btw). If you prefer getting right into it, with lots of storyline with not just THE gae/spicy part, I recommend KinnPorsche, a masterpiece between a forced-to-be bodyguard and of course, a mafia leader (really peak, trust me.) If your going for something in-between, I recommend Duang with You, a series that has just the right amount of everything, with the feels of YOU falling in love as the characters do too. 
-For something that’s “uncensored”, I would recommend a Korean Anime by the name “Mignon”, a story about a boxer and a vampire doctor (insane spice by the end btw). 
+I always like to recommend easy going BLs that aren’t too intense. For example, _2gether_, a classic and most famous between the fans with 2 Thai famous actors (incredibly rich btw). If you prefer getting right into it, with lots of storyline with not just THE gae/spicy part, I recommend _KinnPorsche_, a masterpiece between a forced-to-be bodyguard and of course, a mafia leader (really peak, trust me.) If your going for something in-between, I recommend _Duang with You_, a series that has just the right amount of everything, with the feels of YOU falling in love as the characters do too. 
+For something that’s “uncensored”, I would recommend a Korean Anime by the name “_Mignon_”, a story about a boxer and a vampire doctor (insane spice by the end btw). 
 
 😝 Outro
 
-Overall, if you want a specific order what I think YOU could prefer, you can follow my insta (i_n_amabeer) or snap (in_amabeer) and you can explain me your spice tolerance and what genre you like personally for a more in-depth list. Ofc, there are many more shows out there, this is just the beginning….
+Overall, if you want a specific order what I think YOU could prefer, you can follow my insta (_i_n_amabeer_) or snap (_in_amabeer_) and you can explain me your spice tolerance and what genre you like personally for a more in-depth list. Ofc, there are many more shows out there, this is just the beginning….
 
 lil sneak peaks ପ(˶•-•˶)ଓ ♡
 
