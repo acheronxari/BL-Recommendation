@@ -1,7 +1,5 @@
 # BL-Recommendation
-    body {
-  background-color: #c6f5d3; 
-}
+    body { background-color: #c6f5d3; }
 
 I sorted these based on an overall vibe and intensity most fans (like me) usually agree on:
 
