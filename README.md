@@ -87,7 +87,7 @@ I sorted these based on an overall vibe and intensity most fans (like me) usuall
 	⁃	I Told Sunset About You → Mild–Heavy emotional
 	⁃	Twittering Birds Never Fly → Very Spicy (dark themes) 
 	
-🤪 For Beginners (an Introduction)
+🤪 For Beginners (an Introduction) `#c6f5d3`
 
 I always like to recommend easy going BLs that aren’t too intense. For example, 2gether, a classic and most famous between the fans with 2 Thai famous actors (incredibly rich btw). If you prefer getting right into it, with lots of storyline with not just THE gae/spicy part, I recommend KinnPorsche, a masterpiece between a forced-to-be bodyguard and of course, a mafia leader (really peak, trust me.) If your going for something in-between, I recommend Duang with You, a series that has just the right amount of everything, with the feels of YOU falling in love as the characters do too. 
 For something that’s “uncensored”, I would recommend a Korean Anime by the name “Mignon”, a story about a boxer and a vampire doctor (insane spice by the end btw). 
