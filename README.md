@@ -3,11 +3,10 @@ I sorted these based on an overall vibe and intensity most fans (like me) usuall
 	•	Spicy = more mature themes, heavy tension, darker plots, or strong chemistry
 	•	Mild = balanced romance/drama, some tension but not extreme
 	•	Cute = fluffy, wholesome, school/soft romance vibes
-
-🌶️ Spicy
-
-These usually have stronger chemistry, darker themes, or more mature storylines.
-	⁃	⁃	KinnPorsche
+	
+	🌶️ Spicy
+	These usually have stronger chemistry, darker themes, or more mature storylines.
+	⁃	KinnPorsche
 	⁃	Only Friends (Season 1 & 2)
 	⁃	Love Mechanics
 	⁃	Pit Babe (Season 1 & 2)
@@ -27,11 +26,10 @@ These usually have stronger chemistry, darker themes, or more mature storylines.
 	⁃	Mignon (Korean Anime)
 	⁃	Twittering Birds Never Fly (Anime)
 	⁃	The Eighth Sense
-	⁃	Secret Relationship
+	⁃	Secret Relationship 
 	
-🌤️ Mild
-
-Romantic with drama or tension, but not overly intense.
+	🌤️ Mild
+	Romantic with drama or tension, but not overly intense.
 	⁃	Semantic Error 
 	⁃	Blueming
 	⁃	Jun and Jun
@@ -42,7 +40,7 @@ Romantic with drama or tension, but not overly intense.
 	⁃	Where Your Eyes Linger 
 	⁃	Sammy’s Children’s day 
 	⁃	To My Star
-	⁃	(Vice Versa)
+	⁃	Vice Versa
 	⁃	A Boss and a Babe
 	⁃	Wandee Goodday
 	⁃	Love in Translation
@@ -52,10 +50,9 @@ Romantic with drama or tension, but not overly intense.
 	⁃	I Told Sunset About You
 	⁃	Your Name Engraved Herein
 	⁃	Given (Anime)
-
-🧸 Cute / Fluffy
-
-Soft, wholesome, school-based, or comfort-watch energy.
+	
+	🧸 Cute / Fluffy
+	Soft, wholesome, school-based, or comfort-watch energy.
 	⁃	2gether
 	⁃	My School President
 	⁃	Light on Me
@@ -69,16 +66,15 @@ Soft, wholesome, school-based, or comfort-watch energy.
 	⁃	We Are
 	⁃	Love You Teacher
 	⁃	Cause You’re My Boy
-	⁃	Oh! Boarding House
+	⁃	Oh! Boarding House 
 
-⚠️ Stuff That are in Between 
-
+	⚠️ Stuff That are in Between 
 	⁃	My Beautiful Man → Mild–Spicy
 	⁃	The Eclipse → Mild–Spicy
 	⁃	Never Let Me Go → Mild–Spicy
 	⁃	I Told Sunset About You → Mild–Heavy emotional
-	⁃	Twittering Birds Never Fly → Very Spicy (dark themes)
-
+	⁃	Twittering Birds Never Fly → Very Spicy (dark themes) 
+	
 🤪 For Beginners (an Introduction)
 
 I always like to recommend easy going BLs that aren’t too intense. For example, 2gether, a classic and most famous between the fans with 2 Thai famous actors (incredibly rich btw). If you prefer getting right into it, with lots of storyline with not just THE gae/spicy part, I recommend KinnPorsche, a masterpiece between a forced-to-be bodyguard and of course, a mafia leader (really peak, trust me.) If your going for something in-between, I recommend Duang with You, a series that has just the right amount of everything, with the feels of YOU falling in love as the characters do too. 
